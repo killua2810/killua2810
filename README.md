@@ -7,4 +7,4 @@
 <!---
 killua2810/killua2810 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->eu gosto de anime, jogar, e dormir
+--->eu gosto de anime, jogar, e dormir eu tenho medo do escuro
